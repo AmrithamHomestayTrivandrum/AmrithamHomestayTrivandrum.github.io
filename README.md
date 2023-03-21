@@ -1,1 +1,0 @@
-# AmrithamHomestayTrivandrum.github.io
